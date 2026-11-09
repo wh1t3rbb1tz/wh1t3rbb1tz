@@ -1,4 +1,4 @@
-J.J. Powell
+**J.J. Powell**
 
 **Principal Cybersecurity Engineer** | CISSP · PMP · MBA | San Diego, CA
 
